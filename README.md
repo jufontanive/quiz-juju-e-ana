@@ -1,1 +1,0 @@
-# quiz-juju-e-ana
